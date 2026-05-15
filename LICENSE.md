@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Cubase for PC | Cubase for Windows script with automatic Cubase for PC | Cubase for Windows Script | VST-support + piano-roll. Featuring VST-support and
 
 
 
